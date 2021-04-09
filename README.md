@@ -5,4 +5,4 @@ Hello Peeps, so good to have you on my page and I hope you will enjoy coming on 
 
 So if you want to learn more, explore more or just have a lovely time, you are on the right page.
 
-![Image](
+![Image](IMG_8044.JPG.jpeg)
