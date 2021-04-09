@@ -10,4 +10,9 @@ So if you want to learn more, explore more or just have a lovely time, you are o
 ![Image](IMG_8044.JPG.jpeg)
 
 
-Without much further ado, let's get right to it. My firs post will be about something fun (before getting into the heavy subjects)
+Without much further ado, let's get right to it. My first post is about the review of a new show "Invicibles" (fun subject before getting into the heavy ones).
+
+
+REVIEW: Invicibles
+
+Have you watched the show? At the beginning, I thought it was going to be a show like Paradise PD with lots of foul language (something you will learn about me is that I don't care for cursing or foul language). But I was surprised that instead of bad language it was more....
